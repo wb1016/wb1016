@@ -1,4 +1,5 @@
-![cat](https://github.com/wb1016/wb1016/raw/main/cat-on-table.jpg)\
+![three-billion-java](https://github.com/user-attachments/assets/619d99c5-0414-4887-a5ae-540fd8367479)
+
 [mastodon](https://social.silicon.moe/@Blue_ON)
 [twitter](https://twitter.com/Blue_ON__)
 [youtube](https://youtube.com/channel/UCaM3sp9aWuGoUAk2tVcBKZg)
